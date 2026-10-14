@@ -11,3 +11,5 @@ Not too long ago, my friend [Caela](https://github.com/caela-uk) and I embarked 
 Oh yeah I'm gay
 
 > definitely didnt steal this readme from caela's github page
+
+<img src="88x31\bustimes.png" width="88" height="31" alt="bustimes 88x31"> <img src="88x31\lenovo.png" width="88" height="31"> <img src="88x31\madewithbrackets.gif" width="88" height="31"> <img src="88x31\z580.png" width="88" height="31">
